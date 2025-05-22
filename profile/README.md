@@ -2,6 +2,8 @@
 
 Get ready for a **legendary ride** through chaos, comedy, and carnage with **Happy Wheels Unblocked** – one of the most iconic ragdoll racing games ever created! This **epic arcade-style simulator** mixes **dark humor**, **deadly traps**, and **unforgiving challenges** into a **hyper-casual adventure** that’s as hilarious as it is brutal.
 
+## <a href="https://1kb.link/Xpjdu9">👉 Play Happy Wheels Unblocked Games NOW 👈</a>
+
 ### 🔥 What is Happy Wheels?
 
 Happy Wheels is a **crazy survival racer** that lets you control various characters like a businessman on a Segway, an irresponsible dad, or a grandpa in a rocket-powered wheelchair. Your mission? **Dash, jump, flip, and crash** your way through **obstacle-packed levels** filled with **spikes, mines, wrecking balls**, and more.
